@@ -1,1 +1,1 @@
-# CipsHub.github.io
+# https://bit.ly/CipsHub
